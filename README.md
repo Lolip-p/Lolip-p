@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Lolip-p
 - 👀 I’m interested in Unity
-- 🌱 I’m currently learning in school
-- 💞️ I’m looking to collaborate
 - 📫 How to reach me Discord: LOL i p-p#6136
 - -.-
 
