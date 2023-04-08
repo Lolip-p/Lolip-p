@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LoLip_p
 - 👀 I’m interested in Unity
-- 📫 How to reach me Discord: LoL i p-p#6136
+- 📫 How to reach me Discord: LoLip_p#6136
 - -.-
 
 <!---
